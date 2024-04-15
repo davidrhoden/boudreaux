@@ -12,3 +12,5 @@ adopted from: Lakeside Pets (now closed)
 
 HomeAgain telephone: 1-888-466-3242
 
+When I got him they said he was six. They didn't give me his birthdate.
+That was 2019.
